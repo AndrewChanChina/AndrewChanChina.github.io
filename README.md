@@ -1,2 +1,0 @@
-# andrewchen
-Andrew's Blog
